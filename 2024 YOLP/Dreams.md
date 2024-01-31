@@ -1,0 +1,4 @@
+# Dreams
+
+How dreams generate parallel selves in parallel universes, which occasionally interact — at moments like this, for example, in which I close my eyes and briefly inhabit the courtyard of an industrial building in winter, where I have been only in my dreams. If I can summon this dream-world into my consciousness so easily, does that mean it’s been there all along, kept alive in the background? How many such worlds might there be, humming along as I go about my diurnal tasks, waiting only to be summoned into focus? — Déjà vu is a window to this sensation: that sense of parallel consciousness hints at “something far more deeply interfused,” as Wordsworth put it, than our day-to-day awareness — “fallings from us, vanishings; / High stirrings before which our mortal nature / Does tremble like a guilty thing surprised.”
+

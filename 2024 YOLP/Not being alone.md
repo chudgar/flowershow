@@ -1,0 +1,3 @@
+# 9, Internal Family Systems
+
+The deepest burden of my parts is that, inextricably interdependent on each other and on Self, each believes it is wandering the earth all alone, with no one but a mute and hostile animal’s body for company. That is why to me — to us, rather — the greatest gift of the Internal Family Systems model has been the revelation that no part of us, not even at its most wretched, is ever alone and unloved.
